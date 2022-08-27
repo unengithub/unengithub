@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @unengithub
+- 👀 I’m interested in making an app or more
+- 🌱 I’m currently learning something (idk what)
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me gmail shopunen@gmail.com
